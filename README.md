@@ -1,4 +1,4 @@
-### ⋆｡‧˚ʚ♡ɞ˚‧｡⋆ Hi, welcome to mi Github 💐✨
+### 🌱💗 Hi, welcome to my Github 💐✨
 
 <!--
 **nmirgar/nmirgar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
